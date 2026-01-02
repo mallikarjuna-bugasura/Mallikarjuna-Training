@@ -1,1 +1,1 @@
-# Mallikarjuna-Training
+Mallikarjuna Training
